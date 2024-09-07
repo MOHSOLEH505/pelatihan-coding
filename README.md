@@ -1,0 +1,2 @@
+# pelatihan-coding
+semoga lancar 
